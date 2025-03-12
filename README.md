@@ -1,8 +1,8 @@
 ### bom dia
 meu nome é Maria Vitoria 🤠
-15y
+16y
 
-- estou estudando a disciplina de pc
+- estou estudando a disciplina de mat II
 
 - estou aprendendo alguns codigos
 
